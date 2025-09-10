@@ -1,2 +1,3 @@
-# IXD608OL1FA25
-IXD 608 OL 1 Fall 2025 Repo
+#Lupanch Gupta
+
+- https://lgupta.com
